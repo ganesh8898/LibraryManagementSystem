@@ -1,1 +1,3 @@
 #Kendi Hundi Si...
+chand tak rah bana de
+tare nahi pasand mennu
